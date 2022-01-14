@@ -1,2 +1,0 @@
-# Mian Jawad Ahmad
-
